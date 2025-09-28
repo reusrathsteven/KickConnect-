@@ -1,0 +1,2 @@
+# KickConnect-
+kickconnect-privacy-policy
